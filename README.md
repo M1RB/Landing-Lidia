@@ -1,1 +1,1 @@
-# Landing-page__Lidia
+# Landing-Lidia
